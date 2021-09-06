@@ -74,4 +74,4 @@
 
 聯絡方式
 ---
-請將履歷寄至此信箱 recruitment@knowtecq.com
+請將履歷寄至 HR 信箱 recruitment@knowtecq.com
